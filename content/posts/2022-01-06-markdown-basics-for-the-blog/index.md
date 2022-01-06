@@ -11,3 +11,5 @@ Finally, I'm starting with this blog.
 Gotta have perseverance in giving continuity to this blog.
 
 Wish me luck. :)
+
+*Deep Breaths*
